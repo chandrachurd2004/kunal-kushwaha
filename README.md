@@ -2,4 +2,4 @@
 ![visitors](https://visitor-badge.laobi.icu/badge?page_id=kunal-kushwaha.kunal-kushwaha)
 
 
-hello this is just a dummy request for my learning purposes
+hello this is chandra churd just a dummy request for my learning purposes
